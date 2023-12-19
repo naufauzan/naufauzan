@@ -1,4 +1,4 @@
-# Hi there, I'm Naufal Fauzan - aka [Naufauzan](https://www.linkedin.com/in/naufauzan) 👋
+# Hi there, I'm [Naufal Fauzan](https://www.linkedin.com/in/naufauzan) 👋
 ## About me:
 - 🔭 I’m currently open to work
 - 🌱 I’m currently learning Python and SQL
