@@ -13,16 +13,13 @@
    - South Jakarta Theater Festival 2019 (Orang-Orang Di Tikungan Jalan)-Supporting Actor, Stage Art
  #### 2. [SMA N 51 Jakarta](https://sman51-jkt.sch.id) | MIPA | Jakarta `2014-2017`
    - Gold Medal Pencak Silat at Jungleland Sportnation 2014
-   - Bronze Medal Pencak Silat at Jakarta Pencak Silat National Championship (JKTC3)2015
    - Silver Medal Pencak Silat at Jakarta Pencak Silat National Championship (JKTC4)2015
    - Gold Medal Pencak Silat at Jakarta Pencak Silat National Championship (JKTC4)2016
-   - 4th Place O2SN Jakarta 2016
 
 ## Work Experience:
 #### 1. [This earth](https://www.instagram.com/thisearth.id) | Barista | Jakarta `2022 - 2023`
    - Prepare a variety of high-quality beverages including coffee, espresso, lattes, and cappuccinos.
    - Create refreshing and flavorful smoothies using fresh fruits, vegetables, yogurt, and other ingredients.
-   - Craft delightful shaved ice desserts with a variety of syrups, toppings, and flavors.
 #### 2. [PT Cahaya Surya Abadi (Go JEK - Go Clean Business Partner)] | Technical Trainer | Jakarta `2019 - 2020`
    - Conduct engaging and informative training sessions for cleaning staff, ensuring they grasp complex technical cleaning concepts and techniques.
    - Utilize a variety of training methods, such as hands-on demonstrations, workshops, and multimedia presentations, to cater to diverse learning styles.
