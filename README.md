@@ -23,11 +23,7 @@
 #### 2. [PT Cahaya Surya Abadi (Go JEK - Go Clean Business Partner)] | Technical Trainer | Jakarta `2019 - 2020`
    - Conduct engaging and informative training sessions for cleaning staff, ensuring they grasp complex technical cleaning concepts and techniques.
    - Utilize a variety of training methods, such as hands-on demonstrations, workshops, and multimedia presentations, to cater to diverse learning styles.
-#### 3. [PT. Sarimelati Kencana Tbk.](https://sarimelatikencana.co.id) | Parttime Worker | West Java `2017 - 2018`
-   - Maintained a clean and professional appearance.
-   - Took orders, food, and other orders and prepared them for customers quickly and more effectively.
-   - Delivered excellent customer service and prompt food to deliver.
-     
+ 
 ---
 
 ### Languages and Tools:
